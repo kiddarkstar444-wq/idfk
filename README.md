@@ -12,22 +12,3 @@
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ead5323e-31c8-48c8-9a89-f9d79d1cb7c8" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/128bfdd3-74b1-4bf6-91f5-98db718533ca" />
 
-
-I am a HUGE fan of all kinds of things and I'm in quite a handful of fandoms!! Such as:
-Regretevator(main)
-Phighting(main)
-Block tales
-Frozen soul
-Ultrakill
-Bad things
-The gaslight district
-Skyrim
-Myst
-Object shows and Silent hill!
-
-<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/53573391-df1f-42aa-a726-661aa615d2f8" />
-						<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/5750d3d5-ce8d-4a7b-8751-59cde2ba874f" />
-						<img width="101" height="58" alt="image" src="https://github.com/user-attachments/assets/b9e66a07-5ef8-45ee-ad50-2a2c494e24e1" />
-
-I love goth, shoegaze, and alt rock music!! My favorite bands are: The Cocteau twins, Jack off Jill, Siouxsie and the Banshees, Razorbladekisses and You'll never get to heaven!
-my DNI criteria is Proshippers, homophobes/transphobes, MAGA, racists, and just people who are stinky and support bad people/things in general.
